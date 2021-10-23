@@ -1,0 +1,2 @@
+# kanstarsvision
+We are dedicated to providing top Information Technology Services to our customers. We offer Consultancy and Technological services for end-to-end business solutions, and IT process management to our clients in various areas of expertise.  We’ve based our business on innovation, performance, trust and value. We believe in strong, long-term relationships, and it is our commitment to present only the best group of candidates to our clients.
